@@ -8,5 +8,5 @@
 
 >Bagirishya Rwema Dominique
 
-Follow Me on GitHub [GitHub](https://github.com/rwema3) 
-Follow Me on Twitter [Twitter](https://twitter.com/R_w_e_m_a) 
+>Follow Me on GitHub [GitHub](https://github.com/rwema3)  
+>Follow Me on Twitter [Twitter](https://twitter.com/R_w_e_m_a) 
